@@ -5,7 +5,7 @@
 
 
 - 📫 How to reach me **sggupta548@gmail.com**
-- 📄 View my resume ([Resume Link](https://drive.google.com/file/d/1g96q0wTCcKLEC1PhTpJOlVoJ4-Q0KB8k/view?usp=sharing))
+- 📄 View my resume ([Resume Link](https://drive.google.com/file/d/1QoOoCV_eXB2-gPhLU9Gi6SLFbL332UAa/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
